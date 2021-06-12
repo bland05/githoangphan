@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @githoangphan
+- 👀 I’m interested in software related things
+- 📫 How to reach me: blandphan28@gmail.com
