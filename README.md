@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @githoangphan
+- 👋 Hi, I’m @bland05
 - 👀 I’m interested in software related things
 - 📫 How to reach me: blandphan28@gmail.com
